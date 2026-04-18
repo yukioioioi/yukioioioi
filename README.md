@@ -6,7 +6,7 @@
 
 <details>
 
-<summary> BYI ᯓᡣ𐭩 </summary>
+<summary> ​🇧​​🇾​​🇮​ ᯓᡣ𐭩 </summary>
 
 - Please be careful of what you to say to me! Do not make any racist, homophobic, inappropriate, or weird comments/jokes, especially if we're not close.
 
@@ -19,6 +19,22 @@
 - I'm not very good at comforting people, I'm really sorry about that (T-T) I'll still try my best to make you feel better tho!
 > ( ´･･)ﾉ(._.`)
 
+</details>
+
+<details>
+
+<summary> ​​🇩​​🇳​​🇮​ ᯓᡣ𐭩 </summary>
+
+- P*dophile, lolicon
+> Especially when u s*xualize kids/minors, GET OUT.
+
+- Proshipper, If u ship problematic ships, Incest Shipper
+> If you're one of those people that are like "straight ships are boring" or smth, then also GET OUT.
+
+- Racist, Homophobic, Transphobic
+
+- Looking for a romantic relationship
+> Esp if I don't know you/Just met, like naww???
 </details>
 
 # Under Construction ,, Comeback later!
