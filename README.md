@@ -33,7 +33,7 @@
 
 - Racist, Homophobic, Transphobic
 
-- Looking for a romantic relationship
+- Looking to have a romantic relationship
 > Esp if I don't know you/Just met, like naww???
 </details>
 
