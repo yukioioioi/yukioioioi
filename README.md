@@ -4,7 +4,7 @@
 
 # ✦•········································•✦•········································•✦
 
-## ⸝⸝ ᴄᴀʟʟ ᴍᴇ: ʏᴜᴋɪᴏ / ᴋɪᴏ / ʏᴜᴋɪ ⸝⸝
+# ⸝⸝ ᴄᴀʟʟ ᴍᴇ: ʏᴜᴋɪᴏ / ᴋɪᴏ / ʏᴜᴋɪ ⸝⸝
 <details>
 
 <summary> ​𝘽𝙔𝙄 ᯓᡣ𐭩 </summary>
@@ -51,7 +51,7 @@
   
 <summary> ​​𝘼𝙗𝙤𝙪𝙩 𝙈𝙚 .ᐟ </summary>
 
-### 𝒯𝒶𝓂𝒶𝓀𝒾 𝒴𝑜𝓉𝓈𝓊𝒷𝒶 𝒪𝓈𝒽𝒾 ୭˚. ᵎᵎ 
+## 𝒯𝒶𝓂𝒶𝓀𝒾 𝒴𝑜𝓉𝓈𝓊𝒷𝒶 𝒪𝓈𝒽𝒾 ୭˚. ᵎᵎ 
 > - Also Riako maybe?,, Not sure yet
 > - I don't have much merch of him, but I've been collecting for a long time and saving up. (Nobody knows abt this cuz the fandom is kinda niche...)
 > - Retired <ins>Hanamaru Kunikida Riako</ins>,, **I STILL LOVE MY WIFE !!**
@@ -60,8 +60,9 @@
 > Pet names are ok w me (?) But only if we're <ins>close</ins>.
 - Currently under 18, **so iwc !**
 - I don't mind any pronouns
-- INFJ ,, Leo ,,
-> **Date I Spawned: 08/11/----**
+- INFJ ,, Leo ,, Filipino
+- Fluent(?) in english, but I get rather lazy so I often type with wrong grammar or spellings. I  also rarely speak tagalog/filipino but yes, I can speak and understand well.
+### **Date I Spawned: 08/11/----**
 
 
 </details>
