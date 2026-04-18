@@ -6,7 +6,7 @@
 
 <details>
 
-<summary> ​🇧​​🇾​​🇮​ ᯓᡣ𐭩 </summary>
+<summary> ​𝘽𝙔𝙄 ᯓᡣ𐭩 </summary>
 
 - Please be careful of what you to say to me! Do not make any racist, homophobic, inappropriate, or weird comments/jokes, especially if we're not close.
 
@@ -28,7 +28,7 @@
 
 <details>
 
-<summary> ​​🇩​​🇳​​🇮​ ᯓᡣ𐭩 </summary>
+<summary> ​​𝘿𝙉𝙄 ᯓᡣ𐭩 </summary>
 
 - P*dophile, lolicon
 > Especially when u s*xualize kids/minors, GET OUT.
@@ -39,7 +39,7 @@
 - Racist, Homophobic, Transphobic
 
 - Looking to have a romantic relationship
-> Esp if I don't know you/Just met, like naww???
+> Esp if I don't know you/Just met, like naww?? srry
 
 - If u support corrupt governments / wanting to talk about politics
 > Kinda targetted,, Like no bro I don't like the orange guy of America, why are u asking anyways and WHO R U.
