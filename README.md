@@ -56,7 +56,7 @@
 > - I don't have much merch of him, but I've been collecting for a long time and saving up. (Nobody knows abt this cuz the fandom is kinda niche...)
 > - Retired <ins>Hanamaru Kunikida Riako</ins>,, **I STILL LOVE MY WIFE !!**
 
-- 𝙸'𝚖 𝚖𝚘𝚛𝚎 𝚔𝚗𝚘𝚠𝚗 𝚊𝚜 𝙺𝚒𝚘 𝚘𝚛 𝚈𝚞𝚔𝚒𝚘, 𝚈𝚞𝚔𝚒 𝚒𝚜 𝚖𝚢 𝚘𝚕𝚍 𝚗𝚊𝚖𝚎 𝚋𝚞𝚝 𝙸'𝚖 𝚊𝚕𝚜𝚘 𝚘𝚔𝚊𝚢 𝚠 𝚒𝚝
+- 𝙸'𝚖 𝚖𝚘𝚛𝚎 𝚔𝚗𝚘𝚠𝚗 𝚊𝚜 𝙺𝚒𝚘 𝚘𝚛 𝚈𝚞𝚔𝚒𝚘, 𝚈𝚞𝚔𝚒 𝚒𝚜 𝚖𝚢 𝚘𝚕𝚍 𝚗𝚊𝚖𝚎 𝚋𝚞𝚝 𝙸'𝚖 𝚊𝚕𝚜𝚘 𝚘𝚔𝚊𝚢 with it
 > Pet names are ok w me (?) But only if we're <ins>close</ins>.
 - Currently under 18, **so iwc !**
 - I don't mind any pronouns
