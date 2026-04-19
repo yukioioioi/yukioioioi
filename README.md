@@ -84,6 +84,13 @@
 - [⛔] 𝔹𝕦𝕤𝕪
 > This probably means I'm not in the mood to int much, or maybe I'm actually busy irl,, Just make sure to read my name if I specify anything (ex: W2i, DNIUF, DNIUCF, DNIUP, etc.) My close friends/party are an exception yesyes, esp if we're also friends on Discord!
 
+- [💬] 𝕃𝕠𝕠𝕜𝕚𝕟𝕘 𝕗𝕠𝕣 𝕔𝕙𝕒𝕥
+> Feel free to int w me! I'm probably bored as hell so pls pls int,,
+
+- [🎭] 𝕃𝕠𝕠𝕜𝕚𝕟𝕘 𝕗𝕠𝕣 𝕣𝕠𝕝𝕖𝕡𝕝𝕒𝕪
+> Open to roleplay! But only in the fandom my skin is in,, (Unless u want some goofy ahh crossover then sure)
+> I rarely roleplay now tho, because I'm lazy to be in character, mb!
+
 ### ʚɞ 𝘖𝘷𝘦𝘳𝘢𝘭𝘭, 𝘫𝘶𝘴𝘵 𝘮𝘢𝘬𝘦 𝘴𝘶𝘳𝘦 𝘵𝘰 𝘤𝘩𝘦𝘤𝘬 𝘮𝘺 𝘯𝘢𝘮𝘦 𝘣𝘺𝘪 ʚɞ
 
 ## 𝕆𝕥𝕙𝕖𝕣𝕤 📜
