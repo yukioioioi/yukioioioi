@@ -51,21 +51,29 @@
   
 <summary> ​​𝘼𝙗𝙤𝙪𝙩 𝙈𝙚 .ᐟ </summary>
 
-## 𝒯𝒶𝓂𝒶𝓀𝒾 𝒴𝑜𝓉𝓈𝓊𝒷𝒶 𝒪𝓈𝒽𝒾 ୭˚. ᵎᵎ 
-> - Also Riako maybe?,, Not sure yet
-> - I don't have much merch of him, but I've been collecting for a long time and saving up. (Nobody knows abt this cuz the fandom is kinda niche...)
+## 𝒯𝒶𝓂𝒶𝓀𝒾 𝒴𝑜𝓉𝓈𝓊𝒷𝒶 𝒪𝓈𝒽𝒾 𝒶𝓃𝒹 𝑅𝒾𝒶𝓀𝑜 ୭˚. ᵎᵎ 
+> - I don't have much merch of him yet, but I've been saving up and collecting. (Nobody knows abt this cuz the fandom is kinda niche...)
+> - Selective-sharing,, I sometimes include Sogo Osaka, but I'm okay sharing for him (Gotta include the boyfriends hih)
 > - Retired <ins>Hanamaru Kunikida Riako</ins>,, **I STILL LOVE MY WIFE !!**
 
 ## 🇲​​🇾​ ​🇧​​🇦​​🇸​​🇮​​🇨​ ​🇮​​🇳​​🇫​​🇴​
 
 - 𝙸'𝚖 𝚖𝚘𝚛𝚎 𝚔𝚗𝚘𝚠𝚗 𝚊𝚜 𝙺𝚒𝚘 𝚘𝚛 𝚈𝚞𝚔𝚒𝚘, 𝚈𝚞𝚔𝚒 𝚒𝚜 𝚖𝚢 𝚘𝚕𝚍 𝚗𝚊𝚖𝚎 𝚋𝚞𝚝 𝙸'𝚖 𝚊𝚕𝚜𝚘 𝚘𝚔𝚊𝚢 with it
-> Pet names are ok w me (?) But only if we're <ins>close</ins>.
-- Currently under 18, **so iwc !**
-- I don't mind any pronouns
-- INFJ ,, Leo ,, Filipino
-- Fluent(?) in english, but I get rather lazy so I often type with wrong grammar or spellings. I  also rarely speak tagalog/filipino but yes, I can speak and understand well.
-### **Date I Spawned: 08/11/----**
+> Pet names are ok w me (?) But only if we're close.
+- 𝙲𝚞𝚛𝚛𝚎𝚗𝚝𝚕𝚢 𝚞𝚗𝚍𝚎𝚛 𝟷𝟾, **𝚜𝚘 𝚒𝚠𝚌 !**
+- 𝙸 𝚍𝚘𝚗'𝚝 𝚖𝚒𝚗𝚍 <ins>𝚊𝚗𝚢 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜</ins>
+- 𝙸𝙽𝙵𝙹 ,, 𝙻𝚎𝚘 ,, 𝙵𝚒𝚕𝚒𝚙𝚒𝚗𝚘
+- 𝙵𝚕𝚞𝚎𝚗𝚝(?) 𝚒𝚗 𝚎𝚗𝚐𝚕𝚒𝚜𝚑, 𝚋𝚞𝚝 𝙸 𝚐𝚎𝚝 𝚛𝚊𝚝𝚑𝚎𝚛 𝚕𝚊𝚣𝚢 𝚜𝚘 𝙸 𝚘𝚏𝚝𝚎𝚗 𝚝𝚢𝚙𝚎 𝚠𝚒𝚝𝚑 𝚠𝚛𝚘𝚗𝚐 𝚐𝚛𝚊𝚖𝚖𝚊𝚛 𝚘𝚛 𝚜𝚙𝚎𝚕𝚕𝚒𝚗𝚐𝚜. 𝙸 𝚊𝚕𝚜𝚘 𝚛𝚊𝚛𝚎𝚕𝚢 𝚜𝚙𝚎𝚊𝚔 𝚝𝚊𝚐𝚊𝚕𝚘𝚐/𝚏𝚒𝚕𝚒𝚙𝚒𝚗𝚘 𝚋𝚞𝚝 𝚢𝚎𝚜, 𝙸 𝚌𝚊𝚗 𝚜𝚙𝚎𝚊𝚔 𝚊𝚗𝚍 𝚞𝚗𝚍𝚎𝚛𝚜𝚝𝚊𝚗𝚍 𝚠𝚎𝚕𝚕.
+### **Date I Spawned: Aug/11**
 
+
+</details>
+
+## 
+
+<details>
+
+<summary> ​​𝗡𝗼𝘁𝗲𝘀 𝗳𝗼𝗿 𝗣𝗼𝗻𝘆 𝗧𝗼𝘄𝗻 .ᐟ </summary>
 
 </details>
 
