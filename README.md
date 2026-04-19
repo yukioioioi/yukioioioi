@@ -56,7 +56,7 @@
 > - Selective-sharing,, I sometimes include Sogo Osaka, but I'm okay sharing for him (Gotta include the boyfriends hih)
 > - Retired <ins>Hanamaru Kunikida Riako</ins>,, **I STILL LOVE MY WIFE !!**
 
-## 🇲​​🇾​ ​🇧​​🇦​​🇸​​🇮​​🇨​ ​🇮​​🇳​​🇫​​🇴​
+## ​​𝗠𝘆 𝗕𝗮𝘀𝗶𝗰 𝗜𝗻𝗳𝗼 ── .✦​
 
 - 𝙸'𝚖 𝚖𝚘𝚛𝚎 𝚔𝚗𝚘𝚠𝚗 𝚊𝚜 𝙺𝚒𝚘 𝚘𝚛 𝚈𝚞𝚔𝚒𝚘, 𝚈𝚞𝚔𝚒 𝚒𝚜 𝚖𝚢 𝚘𝚕𝚍 𝚗𝚊𝚖𝚎 𝚋𝚞𝚝 𝙸'𝚖 𝚊𝚕𝚜𝚘 𝚘𝚔𝚊𝚢 with it
 > Pet names are ok w me (?) But only if we're close.
@@ -72,7 +72,7 @@
 
 <details>
 
-<summary> ​​𝗡𝗼𝘁𝗲𝘀 𝗳𝗼𝗿 𝗣𝗼𝗻𝘆 𝗧𝗼𝘄𝗻 📋 </summary>
+<summary> ​​𝐍𝐨𝐭𝐞𝐬 𝐟𝐨𝐫 𝐏𝐨𝐧𝐲 𝐓𝐨𝐰𝐧 📋 </summary>
 
 ## 𝕊𝕥𝕒𝕥𝕦𝕤 𝔾𝕦𝕚𝕕𝕖
 - [🟢] 𝕆𝕟𝕝𝕚𝕟𝕖
@@ -105,6 +105,12 @@
 
 - After we've int for a while, feel free to add me! I'm usually the one to send a request first, but it's okay to send me one too!
 > If you send one and I don't accept, that probably means we just need to int more,, (It's like, u have to reach a certain friendship lvl with me :P )
+  
+</details>
+
+<details>
+
+<summary> 𝐅𝐚𝐧𝐝𝐨𝐦𝐬 𐔌՞. .՞𐦯 </summary>
   
 </details>
 
