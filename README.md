@@ -37,7 +37,7 @@
 - <ins>Proshipper, If u ship problematic ships, Incest shipper</ins>
 > If you're one of those people that are like "straight ships are boring" or smth, then also GET OUT.
 
-- <ins>Racist, Homophobic, Transphobic</ins>
+- <ins>Racist, Ableist, Homophobic, Transphobic</ins>
 
 - <ins>Looking to have a romantic relationship</ins>
 > Esp if I don't know you/Just met, like naww?? srry
@@ -53,7 +53,7 @@
 
 ## 𝒯𝒶𝓂𝒶𝓀𝒾 𝒴𝑜𝓉𝓈𝓊𝒷𝒶 𝒪𝓈𝒽𝒾 𝒶𝓃𝒹 𝑅𝒾𝒶𝓀𝑜 ୭˚. ᵎᵎ 
 > - I don't have much merch of him yet, but I've been saving up and collecting. (Nobody knows abt this cuz the fandom is kinda niche...)
-> - Selective-sharing,, I sometimes include Sogo Osaka, but I'm okay sharing for him (Gotta include the boyfriends hih)
+> - Selective-sharing,, I sometimes include Sogo Osaka, but I'm okay sharing for him. (Gotta include the boyfriends heh...)
 > - Retired <ins>Hanamaru Kunikida Riako</ins>,, **I STILL LOVE MY WIFE !!**
 
 ## ​​𝗠𝘆 𝗕𝗮𝘀𝗶𝗰 𝗜𝗻𝗳𝗼 ── .✦​
@@ -68,7 +68,7 @@
 
 </details>
 
-### 𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
+### 𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟
 
 <details>
 
@@ -127,6 +127,10 @@
 - ᴅᴏᴋɪ ᴅᴏᴋɪ ʟɪᴛᴇʀᴀᴛᴜʀᴇ ᴄʟᴜʙ
 - ᴏᴍɴɪꜱᴄɪᴇɴᴛ ʀᴇᴀᴅᴇʀ'ꜱ ᴠɪᴇᴡᴘᴏɪɴᴛ
 - ᴛɪᴀɴ ɢᴜᴀɴ ᴄɪ ꜰᴜ (ʜᴇᴀᴠᴇɴ ᴏꜰꜰɪᴄɪᴀʟ'ꜱ ʙʟᴇꜱꜱɪɴɢ)
+- ᴘʀᴀɢᴍᴀᴛᴀ
+- ʏᴀᴇʟᴏᴋʀᴇ
+- ᴍᴜʀᴅᴇʀ ᴅʀᴏɴᴇꜱ
+
 > etc. !! Some of my fandoms are kinda niche, sometimes dead, or still popular but idk, I'm too lazy to list all of them.
   
 </details>
