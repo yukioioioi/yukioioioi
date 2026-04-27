@@ -169,4 +169,4 @@
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
-# That's all, thx for reading !! [atabook coming soon,, gimmicks currently unavailable]
+# That's all, thx for reading !! [atabook & strawpage coming soon]
