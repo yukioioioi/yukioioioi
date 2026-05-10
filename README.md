@@ -205,7 +205,7 @@
 - ‎ᴛɪᴀɴ ɢᴜᴀɴ ᴄɪ ꜰᴜ (ʜᴇᴀᴠᴇɴ ᴏꜰꜰɪᴄɪᴀʟ'ꜱ ʙʟᴇꜱꜱɪɴɢ)
 > Xie Lian, Mu Quing, Feng Xin
 ‎
-### Err, I forgot- Just check straw page for more.
+### Err, I forgot- Just check straw page for more,, (Might be slightly different but as long as I mentioned them then they're my fav!?
   
 </details>
 
@@ -213,4 +213,4 @@
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
-# That's all, thx for reading !! [atabook coming soon]
+# That's all, thx for reading !! [atabook coming soon] SIGN MY STRAWPAGE!!
