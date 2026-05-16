@@ -1,6 +1,6 @@
 ## $\texttt{\color{#FFFFFF}˚₊‧꒰ა ʏᴏᴜ'ᴠᴇ ᴅɪꜱᴄᴏᴠᴇʀᴇᴅ ᴍᴇ ʏᴇᴛ ᴀɢᴀɪɴ.. ໒꒱ ‧₊˚}$
 
-<img width="736" height="414" alt="silver equestrian club wear groovy" src="https://github.com/user-attachments/assets/5910a38a-2ea7-40fa-acbc-5c7f51116d98" />
+<img width="1920" height="1080" alt="Image" src="https://github.com/user-attachments/assets/aef48de5-fadd-4337-8632-29124ff04ade" />
 
 ## ✦•····································•✦•····································•✦
 
