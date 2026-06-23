@@ -6,7 +6,7 @@
 
 <br>
 
-$$ \color{#FFFFFF} \Large \textsf{“ₛₒ ᵢ dₒₙ’ₜ ₘᵢₙd ₑᵥₑₙ ᵢf ᵢₜ’ₛ ⱼᵤₛₜ fₒᵣ ₐ ₛₑcₒₙd,} $$ 
+$$ \color{#FFFFFF} \normalsize \textsf{“ₛₒ ᵢ dₒₙ’ₜ ₘᵢₙd ₑᵥₑₙ ᵢf ᵢₜ’ₛ ⱼᵤₛₜ fₒᵣ ₐ ₛₑcₒₙd,} $$ 
 
 $$ \color{#FFFFFF} \Large \textsf{ᵢ wₐₙₜ ₜₒ ₛₑₑ yₒᵤ} $$ 
 
